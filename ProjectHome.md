@@ -1,0 +1,1 @@
+aplikasi ini untuk laundry skala menengah - besar untuk administrasi harian hingga report tahunan dengan fasilitas web checking via versi mobile web
